@@ -1,0 +1,2 @@
+# premium-zinc-die-001-zinc-die-casting-hot-chamber
+Tired of chasing down mold specs on sticky notes and losing production data across five different spreadsheets? The 'Zinc Die Casting &amp; Hot Chamber Mold Craft Hub' consolidates every detail of your hot chamber process into one organized Notion workspace, so you stop hunting for information and start perfecting your craft.  This template eliminates
